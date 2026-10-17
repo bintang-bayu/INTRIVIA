@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [19] Sejauh Ini 
 [Cluster 19 diisi sama orang orang yang ramah dan baik banget kakak fasil yang mendampingi juga sangat baik dan tidak segan memberi informasi dan menjawab pertanyaan adik-adiknya] 
+
+## Harapan Kuliah
+[Saya berharap selama masa saya kuliah di filkom ub saya mendapat banyak manfaat untuk kedepannya dan mendapatkan pengalaman yang berguna dan membentuk karakter dalam diri saya]
